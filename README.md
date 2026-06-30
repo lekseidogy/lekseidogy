@@ -10,4 +10,4 @@ this readme is dedicated to him
 
 my wife
 
-shrine dedicated to my wife: https://lekseidogy.straw.page/
+basic ass white bg shrine dedicated to my wife: https://lekseidogy.straw.page/
